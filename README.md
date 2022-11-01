@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @berk9595
+- 👋 Hi, I’m Berk Ayvalı
 - 👀 I'm interested in taking responsibility without fear or hesitation
 - 🌱 I'm currently learning how to stop myself from taking fast actions
 - 💞️ I’m looking to collaborate on sharing knowledge
